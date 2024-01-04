@@ -1,1 +1,0 @@
-# pengolahan-gambar-dan-fotografi
